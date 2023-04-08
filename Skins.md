@@ -30,4 +30,4 @@ Old ![](https://i.imgur.com/es3rOik.png)
 
 ![](https://i.imgur.com/Ps0GYc6.png)
 
-(https://cdn.7tv.app/emote/63c8a6c330027778647b3de8/4x.webp)
+(https://media.tenor.com/p3SEsFP2xXUAAAAd/nowaying.gif)
