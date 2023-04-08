@@ -14,3 +14,12 @@ DT ![](https://i.imgur.com/eQGjw5o.png)
 Alt ![](https://i.imgur.com/Gur4I0P.png)
 EZ ![](https://i.imgur.com/H5cUQyK.png)
 ![](https://i.imgur.com/d5xRVBJ.png)
+
+# [《KZ》 Villox (VXI) {1.1}](https://drive.google.com/drive/u/0/folders/1Ogs-ExW1l4a0C1VCIAD8Brrb4iNz1S38)
+New ![](https://i.imgur.com/zH1vew9.png
+
+![](
+
+![](
+
+![](https://i.imgur.com/Ps0GYc6.png)
