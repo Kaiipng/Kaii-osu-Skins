@@ -1,7 +1,7 @@
 # Kaii-osu-Skins
 These are all the public skins that Kaii has uploaded
 # Kaii's Public osu! Skins
-**This is my only github**
+**very cool and very nice**
 
 # [《KZ》Kaii Z](https://drive.google.com/drive/folders/1LsZY-1dl3LbEHOw9b9WgHVutiHGSFYbG?usp=share_link)
 Also a blue variant
@@ -29,3 +29,5 @@ Varvalian ![](https://i.imgur.com/Bx0s78O.png)
 Old ![](https://i.imgur.com/es3rOik.png)
 
 ![](https://i.imgur.com/Ps0GYc6.png)
+
+(https://cdn.7tv.app/emote/63c8a6c330027778647b3de8/4x.webp)
