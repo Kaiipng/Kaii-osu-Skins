@@ -30,4 +30,5 @@ Old ![](https://i.imgur.com/es3rOik.png)
 
 ![](https://i.imgur.com/Ps0GYc6.png)
 
-(https://media.tenor.com/p3SEsFP2xXUAAAAd/nowaying.gif)
+![image](https://user-images.githubusercontent.com/130193634/230696521-07e87581-a69a-4d9b-9fef-bb12afdeb3ce.png)
+
