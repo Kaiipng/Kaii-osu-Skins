@@ -4,11 +4,12 @@ These are all the public skins that Kaii has uploaded
 **very cool and very nice**
 
 # [《KZ》Kaii Z](https://drive.google.com/drive/folders/1LsZY-1dl3LbEHOw9b9WgHVutiHGSFYbG?usp=share_link)
-Also a blue variant
-![](https://i.imgur.com/du4Skhl.jpeg)
-![](https://i.imgur.com/3OaXNOW.jpeg)
+Default ![](https://i.imgur.com/du4Skhl.jpeg)
+
+Blue ![](https://i.imgur.com/3OaXNOW.jpeg)
 
 ![](https://i.imgur.com/XlCLCOb.jpeg)
+Full Gallery here> [All Images](https://imgur.com/a/R7wyaJe)
 
 # [《KZ》 Kaii X](https://drive.google.com/drive/folders/1FBIf3KIVdSursbgVeWPDEr2OtgFZZfIt)
 Default ![](https://i.imgur.com/SGqufWi.png)
