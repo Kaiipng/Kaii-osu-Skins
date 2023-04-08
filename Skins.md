@@ -41,6 +41,7 @@ Full Gallery here> [All Images](https://imgur.com/a/PyIVt16)
 
 **Other skins i may use**
 # [UserXII](https://drive.google.com/file/d/1UBv2vimEHAg1Bucxa9tlQCv-ftFI7MHm/view?usp=share_link)
+**The one with the "punch" hitsounds
 ![](https://user-images.githubusercontent.com/130193634/230696890-cf782949-d4a5-4dfc-ae18-f06fafe59087.png)
 
 # [elohere but SZ](https://drive.google.com/file/d/19x4MmXnAKmXCZdFkdO4440a81VoOgz7P/view?usp=share_link)
