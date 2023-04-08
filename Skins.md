@@ -3,6 +3,12 @@ These are all the public skins that Kaii has uploaded
 # Kaii's Public osu! Skins
 **very cool and very nice**
 
+[My osu!profile](https://osu.ppy.sh/users/19039261)
+[My Youtube](https://www.youtube.com/channel/UC8o7wv2QboUPQ3FxHz7mvDw)
+[My Twitch](https://www.twitch.tv/kaizaxd_)
+[My TikTok](https://www.tiktok.com/@kaiipng)
+[My Discord](https://discord.gg/BRVhJbA34z) - Oreo Mcflurry#7035
+
 # [《KZ》Kaii Z](https://drive.google.com/drive/folders/1LsZY-1dl3LbEHOw9b9WgHVutiHGSFYbG?usp=share_link)
 Default ![](https://i.imgur.com/du4Skhl.jpeg)
 
