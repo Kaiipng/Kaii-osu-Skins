@@ -10,7 +10,7 @@ Also a blue variant
 
 # [《KZ》 Kaii X](https://drive.google.com/drive/folders/1FBIf3KIVdSursbgVeWPDEr2OtgFZZfIt)
 ![](https://i.imgur.com/SGqufWi.png)
-DT ![](https://i.imgur.com/eQGjw5o.png)
+DT ![](https://i.imgur.com/eQGjw5o.png)DT Var
 ![](
 ![](
 ![](
