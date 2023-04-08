@@ -8,3 +8,10 @@ Also a blue variant
 ![](https://i.imgur.com/du4Skhl.jpeg)
 ![](https://i.imgur.com/XlCLCOb.jpeg)
 
+# [《KZ》 Kaii X](https://drive.google.com/drive/folders/1FBIf3KIVdSursbgVeWPDEr2OtgFZZfIt)
+![](https://i.imgur.com/SGqufWi.png)
+DT ![](https://i.imgur.com/eQGjw5o.png)
+![](
+![](
+![](
+![](https://i.imgur.com/d5xRVBJ.png)
