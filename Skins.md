@@ -49,6 +49,3 @@ Full Gallery here> [All Images](https://imgur.com/a/PyIVt16)
 [Kaii Varvalian Updated](https://drive.google.com/file/d/19SbGt-beDf8bRcY6Y7T_QsMs2XdHlqyI/view?usp=share_link)
 **the one with loud hitsounds**
 https://cdn.discordapp.com/attachments/1074851156746051614/1094068768461828198/WHAT.mp4
-
-
-
