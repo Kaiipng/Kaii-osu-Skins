@@ -31,7 +31,7 @@ Full Gallery here> [All Images](https://imgur.com/a/Vk04o67)
 
 # [《KZ》Kaii V2](https://drive.google.com/drive/folders/1viy35z4AT9ZQ5cQqSyi9eJ8-t6BqrzjV?usp=sharing)
 Gameplay ![](https://i.imgur.com/hRXI8vZ.png)
-Full Gallery here> ![](https://i.imgur.com/12B45f6.png)
+![](https://i.imgur.com/12B45f6.png)
 
 
 
