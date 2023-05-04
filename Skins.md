@@ -32,10 +32,9 @@ Full Gallery here> [All Images](https://imgur.com/a/Vk04o67)
 # [《KZ》Kaii V2](https://drive.google.com/drive/folders/1viy35z4AT9ZQ5cQqSyi9eJ8-t6BqrzjV?usp=sharing)
 Gameplay ![](https://i.imgur.com/hRXI8vZ.png)
 ![](https://i.imgur.com/12B45f6.png)
+Full Gallery here> [All Images](https://imgur.com/a/8wbmrOF)
 
 
-
-[All Images](https://imgur.com/a/8wbmrOF)
 
 # [《KZ》 Villox (VXI) {1.1}](https://drive.google.com/drive/u/0/folders/1Ogs-ExW1l4a0C1VCIAD8Brrb4iNz1S38)
 New ![](https://i.imgur.com/zH1vew9.png)
