@@ -29,7 +29,7 @@ EZ ![](https://i.imgur.com/H5cUQyK.png)
 ![](https://i.imgur.com/d5xRVBJ.png)
 Full Gallery here> [All Images](https://imgur.com/a/Vk04o67)
 
-# [《KZ》Kaii V2](https://drive.google.com/drive/folders/1viy35z4AT9ZQ5cQqSyi9eJ8-t6BqrzjV?usp=sharing)
+# [《KZ》Kaii V2](https://drive.google.com/file/d/1QeA9QMnIUzGiUw3FODUInNgSnKN84I59/view?usp=share_link)
 Gameplay ![](https://i.imgur.com/hRXI8vZ.png)
 ![](https://i.imgur.com/12B45f6.png)
 Full Gallery here> [All Images](https://imgur.com/a/8wbmrOF)
