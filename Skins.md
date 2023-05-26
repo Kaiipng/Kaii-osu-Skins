@@ -54,9 +54,10 @@ Full Gallery here> [All Images](https://imgur.com/a/PyIVt16)
 
 **Other skins i may use down below(has assets from other skins)**
 # [UserXII](https://drive.google.com/file/d/1UBv2vimEHAg1Bucxa9tlQCv-ftFI7MHm/view?usp=share_link)
-**The one with the (osu!lazer) argon hitsounds
+**The one with the (osu!lazer) argon hitsounds**
 ![](https://github.com/Kaiipng/Kaii-osu-Skins/assets/130193634/557ea01f-9b56-40ea-b922-d0563649c8ce)
 
+**The one with the (osu!lazer) argon hitsounds**
 # [Kaii 2022-07-29](https://drive.google.com/file/d/1s0mv8NcCxYlFAzI2x3f4hhfeCAnotPgy/view?usp=sharing)
 ![](https://user-images.githubusercontent.com/130193634/230696890-cf782949-d4a5-4dfc-ae18-f06fafe59087.png)
 
