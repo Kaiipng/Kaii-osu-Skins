@@ -30,8 +30,17 @@ EZ ![](https://i.imgur.com/H5cUQyK.png)
 Full Gallery here> [All Images](https://imgur.com/a/Vk04o67)
 
 # [《KZ》Kaii V2](https://drive.google.com/drive/folders/1viy35z4AT9ZQ5cQqSyi9eJ8-t6BqrzjV?usp=share_link)
-Gameplay ![](https://i.imgur.com/hRXI8vZ.png)
+
+Gameplay ![](https://github.com/Kaiipng/Kaii-osu-Skins/assets/130193634/616b7aea-7fc1-47ed-b0d0-10ef3ea4525e)
+
+Oreo Edit ![](https://github.com/Kaiipng/Kaii-osu-Skins/assets/130193634/c6f26fdc-288a-4c1b-9974-ba4dfbb30040)
+
+V2.1 ![](https://github.com/Kaiipng/Kaii-osu-Skins/assets/130193634/e7afcc69-b168-4847-8a20-59b11f0aa788)
+
+
+
 ![](https://i.imgur.com/12B45f6.png)
+
 Full Gallery here> [All Images](https://imgur.com/a/8wbmrOF)
 
 
