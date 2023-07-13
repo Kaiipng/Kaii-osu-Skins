@@ -20,7 +20,7 @@ Full Gallery here> [All Images](https://imgur.com/a/R7wyaJe)
 # [《KZ》 Kaii X](https://drive.google.com/drive/folders/1FBIf3KIVdSursbgVeWPDEr2OtgFZZfIt)
 Default ![](https://i.imgur.com/SGqufWi.png)
 
-DT ![](https://i.imgur.com/eQGjw5o.png)
+DT ![](https://github.com/Kaiipng/Kaii-osu-Skins/assets/130193634/44b83504-f025-4fb8-bb6e-8b94626bd8ca)
 
 Alt ![](https://i.imgur.com/Gur4I0P.png)
 
