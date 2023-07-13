@@ -41,7 +41,7 @@ V2.1 ![](https://github.com/Kaiipng/Kaii-osu-Skins/assets/130193634/e7afcc69-b16
 
 ![](https://i.imgur.com/12B45f6.png)
 
-Full Gallery here> [All Images](https://imgur.com/a/8wbmrOF)
+Full Gallery here> [All Images](https://imgur.com/a/NLds4oE)
 
 
 
