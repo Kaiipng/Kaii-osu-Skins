@@ -27,7 +27,7 @@ Alt ![](https://i.imgur.com/Gur4I0P.png)
 EZ ![](https://i.imgur.com/H5cUQyK.png)
 
 ![](https://i.imgur.com/d5xRVBJ.png)
-Full Gallery here> [All Images](https://imgur.com/a/Vk04o67)
+Full Gallery here> [All Images](https://imgur.com/a/sBF3oga)
 
 # [《KZ》Kaii V2](https://drive.google.com/drive/folders/1viy35z4AT9ZQ5cQqSyi9eJ8-t6BqrzjV?usp=share_link)
 
